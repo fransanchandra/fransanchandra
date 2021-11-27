@@ -1,0 +1,2 @@
+- 👋 Hi, I’m Fran!
+- 👀 I’m interested in design and coding!
